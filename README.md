@@ -32,4 +32,4 @@ Nossa equipe domina as stacks mais modernas e eficientes do mercado global de te
 Se você precisa de uma equipe experiente para planejar, desenhar e programar seu software com segurança, escala e velocidade, nós estamos prontos para executar.
 
 🔗 **[Visite nosso site e fale com um especialista: escalacompany.com](https://www.escalacompany.com/)**  
-📩 **E-mail de contato:** contato@escalacompany.com
+
